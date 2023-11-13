@@ -8,5 +8,6 @@ another day 8 nov
 that's wrong 
 sihs
 lfg
+no profit today 
 lfg
 pfg
