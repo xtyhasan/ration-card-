@@ -12,4 +12,5 @@ no profit today
 lfg
 pfg
 yo
+loss
 wssp
