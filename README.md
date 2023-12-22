@@ -3,3 +3,4 @@
 all dues clear 
 
 21- 6th day ( need to pay 100)
+22- dues (7th day )
