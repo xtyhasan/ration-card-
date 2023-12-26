@@ -6,3 +6,5 @@ all dues clear
 22- dues (7th day )
 23- 8th day ( completed)
 24 - 9th day
+25th - 10th (paid )
+26th -11th 
