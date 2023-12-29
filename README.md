@@ -9,3 +9,5 @@ all dues clear
 25th - 10th (paid )
 26th -11th 
 27th - 12th (paid)
+28th-13th
+29th- no chicken 
