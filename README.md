@@ -12,3 +12,4 @@ all dues clear
 28th-13th
 29th- no chicken 
 30th - 14th (paid)
+31st- 15th
