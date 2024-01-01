@@ -13,3 +13,4 @@ all dues clear
 29th- no chicken 
 30th - 14th (paid)
 31st- 15th
+1st Jan - 16th (paid)
