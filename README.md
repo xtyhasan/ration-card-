@@ -14,3 +14,4 @@ all dues clear
 30th - 14th (paid)
 31st- 15th
 1st Jan - 16th (paid)
+3rd Jan - 17th (paid )
