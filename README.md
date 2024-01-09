@@ -15,3 +15,7 @@ all dues clear
 31st- 15th
 1st Jan - 16th (paid)
 3rd Jan - 17th (paid )
+
+
+350 paid faizan 
+9th Jan - 1st day 
