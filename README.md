@@ -20,3 +20,6 @@ all dues clear
 350 paid faizan 
 9th Jan - 1st day 
 11th Jan - 2nd day ( paid )
+12-13 Jan -3rd +4rth day (paid /)
+14 jann- missed 
+15 Jan - 
