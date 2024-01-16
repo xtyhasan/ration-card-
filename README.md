@@ -22,4 +22,4 @@ all dues clear
 11th Jan - 2nd day ( paid )
 12-13 Jan -3rd +4rth day (paid /)
 14 jann- missed 
-15 Jan - 
+15 Jan - 5th
