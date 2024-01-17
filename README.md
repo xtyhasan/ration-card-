@@ -17,9 +17,10 @@ all dues clear
 3rd Jan - 17th (paid )
 
 
-350 paid faizan 
+350 paid faizan ( 2days bahar se chicken ) 
 9th Jan - 1st day 
 11th Jan - 2nd day ( paid )
 12-13 Jan -3rd +4rth day (paid /)
 14 jann- missed 
 15 Jan - 5th
+16th Jan - 6th paid 
